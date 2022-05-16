@@ -14,8 +14,8 @@ Phase 2 Project
 
 Developed By, 
                   Poorna Chandra D
-                  pd@Teksystems.com
-                  9481320573
+                  @Teksystems.com
+                  
 
 
 
